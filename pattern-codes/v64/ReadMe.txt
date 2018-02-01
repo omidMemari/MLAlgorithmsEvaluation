@@ -1,0 +1,1 @@
+Be dalile inke hajme software ziad bud natavanestim source software baraye 64bit ra upload konim.
